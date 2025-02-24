@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm looking to collaborate on best IT company to enhance my skills
+I'm looking to collaborate on best IT company to enhance my skills. 
 
 
 
